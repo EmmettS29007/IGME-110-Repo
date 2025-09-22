@@ -11,4 +11,3 @@ Emmett Sier's Top 10 Ways To Be A Nice Person
 8. Be cool (this one's important)
 9. [Be cool (the video)] (https://www.youtube.com/watch?v=XrdehENKAbk)
 10. [Be kind (the video)] (https://www.youtube.com/watch?v=i63KZkshXNY)
-11. https://www.youtube.com/watch?v=i63KZkshXNY
